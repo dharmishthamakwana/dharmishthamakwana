@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Flutter**
 
-- - 👨‍💻 All of my projects are available at [https://github.com/dharmishthamakwana](https://github.com/dharmishthamakwana)
+- 👨‍💻 All of my projects are available at [https://github.com/dharmishthamakwana](https://github.com/dharmishthamakwana)
 
 
 - 💬 Ask me about ** Flutter**
