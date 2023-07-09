@@ -1,6 +1,6 @@
 
 <h1 align="center">Hi 👋, I'm dharmishtha</h1>
-<h3 align="center">A passionate  Flutter developer India</h3>
+<h3 align="center">A passionate Flutter App developer From India</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dharmishthamakwana&label=Profile%20views&color=0e75b6&style=flat" alt="dharmishthamakwana" /> </p>
 
