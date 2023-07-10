@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=dharmishthamakwana" alt="dharmishthamakwana" /></a> </p>
 
-- 🔭 I’m currently Learning on **Flutter Devloper**
+- 🔭 I’m currently Learning on **Flutter Devlopment**
 
 - 🌱 I’m currently learning **Figma,PHP**
 
