@@ -23,7 +23,7 @@
 
 - 📫 How to reach me **makwanadharmishtha44@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFnxCnCx3s/dbjbxMjktcHWJ-T4YjaNhA/edit?utm_content=DAFnxCnCx3s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFnxCnCx3s/dbjbxMjktcHWJ-T4YjaNhA/edit?utm_content=DAFnxCnCx3s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://www.canva.com/design/DAFnxCnCx3s/dbjbxMjktcHWJ-T4YjaNhA/edit?utm_content=DAFnxCnCx3s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFqXnw7FpY/aSIsNl6WV68ySWA9mpm4Sw/view?utm_content=DAFqXnw7FpY&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
 
 - ⚡ Fun fact **I am Amazing !!**
 
